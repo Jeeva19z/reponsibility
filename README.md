@@ -1,1 +1,1 @@
-# reponsibility
+# responsibility
